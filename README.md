@@ -2,7 +2,7 @@
 
 **还在寻找2027年翻墙机场节点和科学上外网VPN魔法梯子推荐，Shadowsocks、Clash节点购买指南？本文将分享推荐几款广受好评的手机PC[翻墙VPN工具](https://gitlab.com/cnvpn/2026-clash-pc)和SS/SSR/V2Ray/Trojan节点订阅网站，支持小火箭Shadowrocket、Clash 等客户端，满足解锁Netfilx等流媒体、Gemini、ChatGPT、Claude等AI代理、以及其他外贸跨境及学习娱乐各类需求的科学上外网梯子VPN。**
 
-![](https://discuss.logseq.com/uploads/default/original/3X/1/a/1aa762f8acd1e190d6d9829484aba1ddf0d457e3.jpeg)
+![](https://discuss.logseq.com/uploads/default/original/3X/9/7/970f81c0a9fe98e49d6722a535a2062fe7728e82.jpeg)
 
 ---
 ## 🚀2027年好用的 SS/SSR/V2ray/Trojan 节点机场推荐
